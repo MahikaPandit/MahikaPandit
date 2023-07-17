@@ -4,3 +4,5 @@ My name is Mahika Pandit and I am currently a high school student in the Bay Are
 
 #### Blogs 📝
 
+Outside of coding, I am a huge fan of the sport F1 and even run a blog on it! If you want, this is the link to my blog: 
+https://supermahika.wixsite.com/formula1
